@@ -30,3 +30,4 @@ fun fact; the lostus flower's Flower language in japan is "long lost love"
 (this is recent and I just like this ship so fight me-)
 
 ![274174931_1316040388872289_5123632171763485604_n](https://user-images.githubusercontent.com/99941921/156134305-0da2edd7-d9a4-4040-b6e8-3a5c952c3028.png)
+

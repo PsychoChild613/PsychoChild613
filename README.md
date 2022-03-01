@@ -1,4 +1,4 @@
-### Hello and welcome to your demise
+### Hello and welcome to your demise (suffer from the fact that u have no artistic talent)
 
 In this site I will post the art that I drew (so far anyway).
 
